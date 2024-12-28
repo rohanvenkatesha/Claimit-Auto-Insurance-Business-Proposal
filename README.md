@@ -1,6 +1,5 @@
-# Business-Proposal For Business Integrity Challenge 2024
-
 # **ClaimIT: Elevating Insurance and Simplifying Claims**
+Business-Proposal For Business Integrity Challenge 2024
 
 [![Watch the Trailer](https://img.youtube.com/vi/LUPpjWrDW38/0.jpg)](https://youtu.be/LUPpjWrDW38?feature=shared)  
 *Click on the image above to watch the official product trailer.*
