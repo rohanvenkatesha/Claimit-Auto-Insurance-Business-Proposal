@@ -1,4 +1,4 @@
-# Claimit-Auto-Insurance-Business-Proposal
+# Business-Proposal
 
 # **ClaimIT: Elevating Insurance and Simplifying Claims**
 
