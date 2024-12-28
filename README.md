@@ -1,4 +1,4 @@
-# Business-Proposal
+# Business-Proposal For Business Integrity Challenge 2024
 
 # **ClaimIT: Elevating Insurance and Simplifying Claims**
 
