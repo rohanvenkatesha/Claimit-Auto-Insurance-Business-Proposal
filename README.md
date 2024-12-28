@@ -108,7 +108,7 @@ Using ClaimIT as a case study, I can pitch innovative ideas that align business 
 For inquiries or collaborations:
 
 - **Rohan Venkatesha**  
-  LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/rohan-venkatesha/)
+  LinkedIn: [Rohan Venkatesha](https://www.linkedin.com/in/rohan-venkatesha/)
 
 ---
 
